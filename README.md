@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Thananchseyan
+- Undergraduate, Computer Science and Engineering, University of Moratuwa
+- A undergraduate student seeking for an opportunity to gain expertise in software architecture & design and willing to contribute designing solutions with acquired technical knowledge and creativity. Versatile, resilient, desired of experience from small private projects to large scale enterprise application  projects. Interested in working as a team and to contribute my uttermost to the group. Looking forward with greater anticipation to challenges and acquire knowledge
